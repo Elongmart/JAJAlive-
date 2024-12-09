@@ -3,7 +3,7 @@
 ## Apa Itu JAJA Live?  
 JAJA Live adalah aplikasi seluler interaktif yang dirancang untuk live streaming dan interaksi sosial secara real-time. Aplikasi ini memungkinkan pengguna untuk terhubung melalui siaran video langsung, menjadikannya platform sempurna untuk hiburan dan interaksi komunitas online. Baik Anda ingin memamerkan bakat, berpartisipasi dalam obrolan langsung, atau menjelajahi konten video yang menarik, JAJA Live menyediakan semuanya dalam satu platform yang praktis.  
 
-## 👉🏻Unduh Disini : ⬇️🎞️ https://modhello.com/ 📲
+## 👉🏻Unduh Disini : ⬇️🎞️ https://heyapks.com/ 📲
 
 ## Fitur JAJA Live  
 JAJA Live menonjol dengan berbagai fitur dinamis dan mudah digunakan:  
